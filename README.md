@@ -1,5 +1,5 @@
 <p align="center">
-Mao / other ..
+Mao / other ..  <img src="https://supplies.ju.mp/assets/images/gallery05/c438e218_original.gif?v=2e2c9a9d"/>
 </p><br>
 
 Note that my username isn't serious. But in a short note, it was rushed. It's nice to meet you.
