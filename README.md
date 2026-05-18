@@ -4,10 +4,12 @@ Mao / other ..  <img src="https://supplies.ju.mp/assets/images/gallery05/c438e21
 
 Note that my username isn't serious. But in a short note, it was rushed. It's nice to meet you.
 
+I aspire to be an animator and wish to work with animation groups/companies in the future. 
+
 C+H (Cuddle+hug/hide) are fine. You're always welcome.
 
-Whispers are mainly preferred since I'll be off sometimes; I draw offsite such as Pucca content, even other childhood shows/movies.
+Whispers are mainly preferred since I'll be off sometimes, I may also miss your whispers so please give me a moment unless you'd wanna spam me; I draw offsite such as Pucca content, even other childhood shows/movies, I'm a really busy artist.
 
-Limbus Company and Minecraft are what I currently enjoy right now.
+Limbus Company and Minecraft (Story Mode) are what I currently enjoy right now.
 
 Noting for any fans though: I haven't watched any Pucca content since it's been years, so chances are that I may be slow for topics related to the fandom for newer content, but I do have some knowledge. I also prefer gifs, graphics, etc, of the show more than the seasons.
