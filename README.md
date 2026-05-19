@@ -1,8 +1,13 @@
 <p align="center">
+<img src="https://biscuit.crd.co/assets/images/gallery87/179a0ed5.gif?v=edffcd2f" alt="Untitled"/><img src="https://biscuit.crd.co/assets/images/gallery87/179a0ed5.gif?v=edffcd2f" alt="Untitled"/>
+</p><br>
+
+
+<p align="center">
 Mao / other ..  <img src="https://supplies.ju.mp/assets/images/gallery05/c438e218_original.gif?v=2e2c9a9d"/>
 </p><br>
 
-Note that my username isn't serious. But in a short note, it was rushed. It's nice to meet you.
+My username was rushed. It isn't anything serious. It is nice to meet you!
 
 I aspire to be an animator and wish to work with animation groups/companies in the future. 
 
