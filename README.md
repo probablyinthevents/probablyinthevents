@@ -1,5 +1,5 @@
 [ im working on a strawpage please bear with me ]
-Lime/Jesse
+Lime/Jesse hi
 
 Cuddle/etc.. is fine !!
 uh
@@ -9,3 +9,10 @@ uh
 uh
 
 hh
+
+chemcial romance
+
+uh
+uhj
+
+i jdobnti kknow
