@@ -19,6 +19,7 @@ Cuddling/etc.. is always okay !! Heavily encouraged ' <br>
 Shows/games '<br>
 . Among Us Show <br>
 . Minecraft: Story Mode <br>
+. Five Nights at Freddys
 . TBA...
 <br>
 </p>
@@ -32,4 +33,5 @@ Music artists '<br>
 . 2hollis <br>
 . The Living Tombstone <br>
 . Maretu <br>
+. Mitski <br>
 </p>
