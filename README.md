@@ -3,7 +3,7 @@
 <p align="center">
 
 <p align="center">
-Cuddling/etc.. is always okay !! Heavily encouraged. '
+Cuddling/etc.. is always okay !! Heavily encouraged '
 
 
 <p align="left">
