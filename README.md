@@ -20,8 +20,8 @@ Cuddling/etc.. is always okay !! Heavily encouraged ' <br>
 Shows/games/movies '<br>
 . Among Us Show <br>
 . Minecraft: Story Mode <br>
-. Five Nights at Freddys
-. Back to the Future
+. Five Nights at Freddys <br>
+. Back to the Future <br>
 . TBA...
 <br>
 </p>
