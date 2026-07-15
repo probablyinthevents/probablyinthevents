@@ -11,11 +11,15 @@
 Hey !! I'm an aspiring tattoo artist.. working on countless of art portfolios and uhuhei you name it. It's been a dream career since forever so uhh im also a night-owl, so im usually online often..
 </p>
 
-
 <p align="center">
 Cuddling/etc.. is always okay !! Heavily encouraged ' <br>
 <br>
+<p align="center">
+i do alot of magma/whiteboard fox sessions so ill be putting in the invite codes here if you wanna join me anytime or in my username on pony town: none
+</p>
+<p align="center">
   <img width="100" height="56" alt="image" src=https://64.media.tumblr.com/8a85c6a9d9f3997f12f4f78a6377ae17/e6c3d6e24bb9e481-6c/s100x200/6fd038920854f7a205d83b2c3b444a271aabd39d.gifv>
+</p>
 <p align="left">
 Shows/games/movies '<br>
 . Among Us Show <br>
