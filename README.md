@@ -6,15 +6,16 @@ i always edit this page and uhh. i plan to add in a tweened lime because yeah.. 
 <img width="320" height="40" alt="image" src=https://blinkies.neocities.org/b/display/0092-computerconnect.gif>
 <p align="center">
 <p align="center">
-<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/b918ba0779298f81d08218d64b889240/59840e6362bc73df-cb/s100x200/f34f9bf3c41415ede822c9d7bb17f840cabbb40c.gifv>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/8cf6438e50bd6a2c7e3fa361f92832f9/59840e6362bc73df-de/s100x200/529a470ca6093b387c20e5bf5ec5800c707fa2f1.gifv>
-</p>
+<img width="200" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>&nbsp;&nbsp;&nbsp;<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/b918ba0779298f81d08218d64b889240/59840e6362bc73df-cb/s100x200/f34f9bf3c41415ede822c9d7bb17f840cabbb40c.gifv>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/8cf6438e50bd6a2c7e3fa361f92832f9/59840e6362bc73df-de/s100x200/529a470ca6093b387c20e5bf5ec5800c707fa2f1.gifv>&nbsp;&nbsp;&nbsp;<img width="200" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>
+
+
 
 <p align="center">
 Hey !! I'm an aspiring tattoo artist.. working on countless of art portfolios and uhuhei you name it. It's been a dream career since forever so uhh im also a night-owl, so im usually online often..
 </p>
-
 <p align="center">
-Cuddling/etc.. is always okay !! Heavily encouraged ' <br>
+Cuddling/etc.. is always okay !! Heavily encouraged '
+</p>
 <br>
 <p align="center">
 i do alot of magma/whiteboard fox sessions so ill be putting in the invite codes here if you wanna join me anytime or in my username on pony town: none
