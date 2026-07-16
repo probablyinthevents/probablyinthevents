@@ -1,6 +1,6 @@
 
 <p align="center">
-hi.. i always edit this page and uhh. i plan to add in a tweened lime because yeah.. hi !!
+i always edit this page and uhh. i plan to add in a tweened lime because yeah.. but i hate coding (jkjk) so ill figure it out hi !!
 
 <p align="center">
 <img width="320" height="40" alt="image" src=https://blinkies.neocities.org/b/display/0092-computerconnect.gif>
