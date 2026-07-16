@@ -14,6 +14,10 @@ Hey !! I'm an aspiring tattoo artist.. working on countless of art portfolios an
 </p>
 
 <p align="center">
+im also a roleplayer.. and a writer.
+</p>
+
+<p align="center">
 Cuddling/etc.. is always okay !! Heavily encouraged ' <br>
 <br>
 <p align="center">
