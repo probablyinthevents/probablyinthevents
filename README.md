@@ -4,8 +4,7 @@
 
 <br>
 <p align="center">
-$`{\color{#65f558}\text{Jesse ! Aspiring tattoo artist and game creator.}}`$
-</p>
+$`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
 Cuddling/etc.. is always okay !! Heavily encouraged '
 </p>
