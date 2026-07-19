@@ -2,10 +2,6 @@
 <img width="900" height="90" alt="image" src=https://64.media.tumblr.com/a2526d8e6256b736fcc675bff91f421c/9deb4777d7cf8466-84/s250x400/aa4bfc2874419089d6db9d1ac4d548daa9e34f38.gifv>
 </p>
 
-<p align="center">
-Profile can change theme anytime.
-</p>
-
 <br>
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
