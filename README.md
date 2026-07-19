@@ -2,6 +2,10 @@
 <img width="900" height="90" alt="image" src=https://64.media.tumblr.com/a2526d8e6256b736fcc675bff91f421c/9deb4777d7cf8466-84/s250x400/aa4bfc2874419089d6db9d1ac4d548daa9e34f38.gifv>
 </p>
 
+<p align="center">
+Profile can change theme anytime.
+</p>
+
 <br>
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
@@ -16,6 +20,8 @@ Cuddling/etc.. is always okay !! Heavily encouraged '
 <p align="center">
 <img width="500" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>
 </p>
+
+
 <p align="center">
 $`{\color{#588c53}\text{Media}}`$<br>
 . Among Us Show <br>
