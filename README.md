@@ -2,12 +2,31 @@
 <img width="900" height="90" alt="image" src=https://64.media.tumblr.com/a2526d8e6256b736fcc675bff91f421c/9deb4777d7cf8466-84/s250x400/aa4bfc2874419089d6db9d1ac4d548daa9e34f38.gifv>
 </p>
 
+
 <br>
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
 Cuddling/etc.. is always okay !! Heavily encouraged '
 </p>
+<br>
+<br>
+<p align="center">
+<img width="450" height="20" alt="image" src=https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv>
+</p>
+<br>
+<div align="center">
+<details>
+  <summary>
+   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> Before you interact <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
+  </summary>
+  
+  I'm an extrovert !! I always have stuff to say ! I talk about coding, Among Us franchise, many things-- even Roblox, you can always join me ! **If you're not wanting to be associated, I totally respect that, no pressure !**
+
+  Let's keep our conversation(s) clean !!
+</details>
+</div>
+
 <br>
 <p align="center">
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e3e62a2e-c93d-4ba2-8447-c71e88c7c76b" />&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/b083733bd984d0ca17049a02e1553b3e/f94b349ef6adc189-0c/s100x200/6e555a8c8c0556bd575cad29d0e7d6fe2b20907c.gifv>&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/9c091c1717e56df29d3a01d56f241821/f94b349ef6adc189-54/s100x200/7dad2ede55856d2d440f6f47c2d5c7c022f7465c.gifv>
@@ -31,6 +50,20 @@ $`{\color{#588c53}\text{Media}}`$<br>
 $`{\color{#588c53}\text{Music artists}}`$<br>
 . Femtanyl <br>
 . Chemical Romance <br>
+. Trapchick <br>
+. Vane Lily <br>
+. Alex G <br>
+. 2hollis <br>
+. The Living Tombstone <br>
+. Maretu <br>
+. Mitski <br>
+</p>
+
+
+<p align="center">
+$`{\color{#588c53}\text{Other interests}}`$<br>
+. Roleplaying<br>
+. Coding <br>
 . Trapchick <br>
 . Vane Lily <br>
 . Alex G <br>
