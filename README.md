@@ -1,30 +1,24 @@
-
 <p align="center">
-i always edit this page and uhh. i plan to add in a tweened lime because yeah.. but i hate coding (jkjk) so ill figure it out hi !!
+<img width="900" height="90" alt="image" src=https://64.media.tumblr.com/a2526d8e6256b736fcc675bff91f421c/9deb4777d7cf8466-84/s250x400/aa4bfc2874419089d6db9d1ac4d548daa9e34f38.gifv>
+</p>
 
+<br>
 <p align="center">
-<img width="320" height="40" alt="image" src=https://blinkies.neocities.org/b/display/0092-computerconnect.gif>
-<p align="center">
-<p align="center">
-<img width="200" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>&nbsp;&nbsp;&nbsp;<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/b918ba0779298f81d08218d64b889240/59840e6362bc73df-cb/s100x200/f34f9bf3c41415ede822c9d7bb17f840cabbb40c.gifv>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<img width="100" height="56" alt="image" src=https://64.media.tumblr.com/8cf6438e50bd6a2c7e3fa361f92832f9/59840e6362bc73df-de/s100x200/529a470ca6093b387c20e5bf5ec5800c707fa2f1.gifv>&nbsp;&nbsp;&nbsp;<img width="200" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>
-
-
-
-<p align="center">
-Hey !! I'm an aspiring tattoo artist.. working on countless of art portfolios and uhuhei you name it. It's been a dream career since forever so uhh im also a night-owl, so im usually online often..
+$`{\color{#65f558}\text{Jesse ! Aspiring tattoo artist and game creator.}}`$
 </p>
 <p align="center">
 Cuddling/etc.. is always okay !! Heavily encouraged '
 </p>
 <br>
 <p align="center">
-i do alot of magma/whiteboard fox sessions so ill be putting in the invite codes here if you wanna join me anytime or in my username on pony town: none
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e3e62a2e-c93d-4ba2-8447-c71e88c7c76b" />&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/b083733bd984d0ca17049a02e1553b3e/f94b349ef6adc189-0c/s100x200/6e555a8c8c0556bd575cad29d0e7d6fe2b20907c.gifv>&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/9c091c1717e56df29d3a01d56f241821/f94b349ef6adc189-54/s100x200/7dad2ede55856d2d440f6f47c2d5c7c022f7465c.gifv>
+</p>
+
+<p align="center">
+<img width="500" height="20" alt="image" src=https://64.media.tumblr.com/649ae50488f1f93cb2acbbf56d2c0725/87be0718c2a2076f-ba/s250x400/80d0cefd9987093478ca209f5a3bbce4d7f93001.gifv>
 </p>
 <p align="center">
-  <img width="100" height="56" alt="image" src=https://64.media.tumblr.com/8a85c6a9d9f3997f12f4f78a6377ae17/e6c3d6e24bb9e481-6c/s100x200/6fd038920854f7a205d83b2c3b444a271aabd39d.gifv>
-</p>
-<p align="left">
-Shows/games/movies '<br>
+$`{\color{#588c53}\text{Media}}`$<br>
 . Among Us Show <br>
 . Minecraft: Story Mode <br>
 . Five Nights at Freddys <br>
@@ -32,8 +26,8 @@ Shows/games/movies '<br>
 . TBA...
 <br>
 </p>
-<p align="right">
-Music artists '<br>
+<p align="center">
+$`{\color{#588c53}\text{Music artists}}`$<br>
 . Femtanyl <br>
 . Chemical Romance <br>
 . Trapchick <br>
@@ -44,3 +38,17 @@ Music artists '<br>
 . Maretu <br>
 . Mitski <br>
 </p>
+
+
+
+<p align="center">
+<img width="1400" height="150" alt="image" src=https://64.media.tumblr.com/a2526d8e6256b736fcc675bff91f421c/9deb4777d7cf8466-84/s250x400/aa4bfc2874419089d6db9d1ac4d548daa9e34f38.gifv>
+</p>
+
+<details>
+  <p align="center"><summary>Graphic credits</summary></p>
+Junabuggy
+- Three green stamps above interests (music and media).
+
+- TBA
+</details>
