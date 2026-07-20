@@ -6,7 +6,7 @@
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
-Cuddling/etc.. is always okay !! Heavily encouraged '
+Cuddling/piles/etc.. is always okay !! Heavily encouraged '
 </p>
 <br>
 <br>
@@ -64,22 +64,8 @@ $`{\color{#588c53}\text{Music artists}}`$<br>
 . The Living Tombstone <br>
 . Maretu <br>
 . Mitski <br>
+. Crystal Castles <br>
 </p>
-
-
-<p align="center">
-$`{\color{#588c53}\text{Other interests}}`$<br>
-. Roleplaying<br>
-. Coding <br>
-. Trapchick <br>
-. Vane Lily <br>
-. Alex G <br>
-. 2hollis <br>
-. The Living Tombstone <br>
-. Maretu <br>
-. Mitski <br>
-</p>
-
 
 
 <p align="center">
