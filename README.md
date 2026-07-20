@@ -27,7 +27,7 @@ Cuddling/etc.. is always okay !! Heavily encouraged '
   
   $`{\color{#a37e50}\text{I'm an extrovert !! I always have stuff to say ! I talk about coding, Among Us franchise, many things--}}`$ $`{\color{#e6bc8a}\text{**If you're not wanting to be associated, I totally respect that, no pressure !**}}`$
 
-$`{\color{#a37e50}\text{Let's keep our conversation(s) clean !!}}`$
+$`{\color{#a37e50}\text{it takes me a while to see whispers (at least a minute)}}`$
 
 $`{\color{#a37e50}\text{I'm mostly off-tab ! I could be on Magma, coding on a game.. anything !}}`$
 
