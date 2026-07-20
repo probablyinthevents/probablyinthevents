@@ -34,7 +34,7 @@ $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're w
 
 $`{\color{#a37e50}\text{I'm mostly off-tab ! I could be on Magma, coding on a game.. anything !}}`$
 
-
+$`{\color{#a37e50}\text{Sometimes i turn public chat off.. I usually put w2i in my user if it happens !}}`$
 </details>
 </div>
 <br>
