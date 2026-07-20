@@ -8,6 +8,9 @@ $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
 Cuddling/piles/etc.. is always okay !! Heavily encouraged '
 </p>
+<p align="center">
+Friend requests are okay if we've interacted before !
+</p>
 <br>
 <br>
 <p align="center">
