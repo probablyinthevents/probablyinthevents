@@ -6,7 +6,7 @@
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
-Cuddling/etc... is always okay (unless "dni" or anything related in user) !! Heavily encouraged '
+Cuddling/etc... is always okay !! Heavily encouraged '
 </p>
 <p align="center">
 Friend requests are okay if we've interacted before ! 
@@ -28,28 +28,13 @@ Friend requests are okay if we've interacted before !
    <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> Before you interact <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
   </summary>
   
-  $`{\color{#a37e50}\text{I'm an extrovert !! I always have stuff to say ! I talk about coding, Among Us franchise, many things--}}`$ $`{\color{#e6bc8a}\text{**If you're not wanting to be associated, I totally respect that, no pressure !**}}`$
+  $`{\color{#a37e50}\text{I'm an extrovert !! I always have stuff to say ! I talk about coding, Among Us franchise, many things haha}}`$ $`{\color{#e6bc8a}\text{**If you're not wanting to be associated, I totally respect that, no pressure !**}}`$
 
 $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're wanting to talk instead!! it would take me at least a good minute to reply lol }}`$
 
-$`{\color{#a37e50}\text{most of the times, ill have public chat off.. so i may type in w2i in my user if it happens !}}`$
+$`{\color{#a37e50}\text{"w2i" is only used if I have public chat off.}}`$
 </details>
 </div>
-
-
-<br>
-<div align="center">
-<details>
-  <summary>
-   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> Notes <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
-  </summary>
-  
-  $`{\color{#a37e50}\text{I want to clarify that I tend to move my character away from yours if I feel i'm getting in your way (or just covering you unintentionally)}}`$ $`{\color{#a37e50}\text{I have nothing personal/against you nor anyone else involved.}}`$
-
-</details>
-</div>
-
-
 
 <br>
 <p align="center">
