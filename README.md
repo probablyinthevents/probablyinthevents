@@ -6,6 +6,11 @@
 <p align="center">
 $`{\color{#65f558}\text{Aspiring tattoo artist and game programmer '}}`$
 <p align="center">
+Anywaaays.. welcome to my profile !! im into many things, from art to fashion. i do thrifting too and blogging sometimes. i do almost all of my art in magma or whiteboard fox depending (but magma 🫶) !!
+</p>
+<br>
+<br>
+<p align="center">
 Cuddling/etc... is always okay !! Heavily encouraged '
 </p>
 <p align="center">
@@ -35,6 +40,8 @@ $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're w
 $`{\color{#a37e50}\text{"w2i" is only used if I have public chat off.}}`$
 </details>
 </div>
+
+
 
 <br>
 <p align="center">
