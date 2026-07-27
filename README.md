@@ -32,8 +32,6 @@ Friend requests are okay if we've interacted before !
 
 $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're wanting to talk instead!! it would take me at least a good minute to reply lol }}`$
 
-$`{\color{#a37e50}\text{I'm mostly off-tab ! I could be on Magma, coding on a game.. anything !}}`$
-
 $`{\color{#a37e50}\text{most of the times, ill have public chat off.. so i may type in w2i in my user if it happens !}}`$
 </details>
 </div>
