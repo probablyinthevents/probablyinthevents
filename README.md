@@ -37,6 +37,22 @@ $`{\color{#a37e50}\text{I'm mostly off-tab ! I could be on Magma, coding on a ga
 $`{\color{#a37e50}\text{most of the times, ill have public chat off.. so i may type in w2i in my user if it happens !}}`$
 </details>
 </div>
+
+
+<br>
+<div align="center">
+<details>
+  <summary>
+   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> What to know <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
+  </summary>
+  
+  $`{\color{#a37e50}\text{To clarify: I tend to move my character away from yours if I feel i'm getting in your way (or just covering you unintentionally)}}`$ $`{\color{#a37e50}\text{I have nothing personal/against you nor anyone else involved. Thank you for understanding.}}`$
+
+</details>
+</div>
+
+
+
 <br>
 <p align="center">
 <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e3e62a2e-c93d-4ba2-8447-c71e88c7c76b" />&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/b083733bd984d0ca17049a02e1553b3e/f94b349ef6adc189-0c/s100x200/6e555a8c8c0556bd575cad29d0e7d6fe2b20907c.gifv>&nbsp;&nbsp;<img width="99" height="55" alt="image" src=https://64.media.tumblr.com/9c091c1717e56df29d3a01d56f241821/f94b349ef6adc189-54/s100x200/7dad2ede55856d2d440f6f47c2d5c7c022f7465c.gifv>
