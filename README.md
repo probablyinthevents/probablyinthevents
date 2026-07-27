@@ -41,7 +41,7 @@ $`{\color{#a37e50}\text{most of the times, ill have public chat off.. so i may t
 <div align="center">
 <details>
   <summary>
-   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> What to know <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
+   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> Notes <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
   </summary>
   
   $`{\color{#a37e50}\text{I want to clarify that I tend to move my character away from yours if I feel i'm getting in your way (or just covering you unintentionally)}}`$ $`{\color{#a37e50}\text{I have nothing personal/against you nor anyone else involved.}}`$
