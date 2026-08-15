@@ -14,7 +14,7 @@ Anywaaays.. welcome to my profile !! im into many things, from art to fashion. i
 Cuddling/etc... is always okay !! Heavily encouraged '
 </p>
 <p align="center">
-Friend requests are okay if we've interacted before ! 
+Friend requests are okay if we've interacted before ! hi guys
 </p>
 <br>
 <br>
@@ -40,6 +40,20 @@ $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're w
 $`{\color{#a37e50}\text{"w2i" is only used if I have public chat off.}}`$
 </details>
 </div>
+
+<br>
+<div align="center">
+<details>
+  <summary>
+   <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif> More info <img width="20" height="20" alt="image" src=https://pixelsafari.neocities.org/favicon/nature/star/star82.gif>
+  </summary>
+  
+  $`{\color{#a37e50}\text{I dont have any social medias.. but i will make a discord later, if you wanna be friends, let me know your user and ill add you later!!}}`$
+
+$`{\color{#a37e50}\text{umummmm adding later thumbs up }}`$
+</details>
+</div>
+
 
 
 
