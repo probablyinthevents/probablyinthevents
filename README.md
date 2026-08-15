@@ -50,7 +50,7 @@ $`{\color{#a37e50}\text{"w2i" is only used if I have public chat off.}}`$
   
   $`{\color{#a37e50}\text{I dont have any social medias.. but i will make a discord later, if you wanna be friends, let me know your user and ill add you later!!}}`$
 
-$`{\color{#a37e50}\text{umummmm adding later thumbs up }}`$
+$`{\color{#a37e50}\text{i get lag spikes sometimes.. im sorry if i start crashing out (aka the spike) }}`$
 </details>
 </div>
 
