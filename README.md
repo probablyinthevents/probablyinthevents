@@ -35,7 +35,7 @@ Friend requests are okay if we've interacted before ! hi guys
   
   $`{\color{#a37e50}\text{I'm an extrovert !! I always have stuff to say ! I talk about coding, Among Us franchise, many things haha}}`$ $`{\color{#e6bc8a}\text{**If you're not wanting to be associated, I totally respect that, no pressure !**}}`$
 
-  $`{\color{#e6bc8a}\text{**I will not be sharing anything very personal, just hobbies or anything, whatever is coolcool !!**}}`$
+  $`{\color{#e6bc8a}\text{**I will not be sharing anything very personal (experiences, etc..), just hobbies or anything, whatever is coolcool !!**}}`$
 
 $`{\color{#a37e50}\text{If im away or busy, please send me a whisper if you're wanting to talk instead!! it would take me at least a good minute to reply lol }}`$
 
